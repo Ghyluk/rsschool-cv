@@ -4,7 +4,7 @@
 ## **Contacts infortmation:**
 
 - **Location: Grodno, Belarus**
-- **Phone: +375299999999**
+- **Phone: +375298888888**
 - **Email: [gleb.kuzikevich@gmail.com](gleb.kuzikevich@gmail.com)**
 - **Nickname discord server rs-school: Hleb Kuzikevich(@Ghylyk)**
 
